@@ -1,4 +1,4 @@
-📝Apuntes Clave para tu Oral: Gestión de Gastos
+📝Apuntes Clave para aplicación de Gestión de Gastos:
 
 Aquí tienes un resumen conciso de los puntos más importantes a practicar para tu examen oral, centrándote en las funciones de registrar, modificar y eliminar gastos. ¡Llévalos como tus notas!
 
